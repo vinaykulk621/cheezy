@@ -130,7 +130,7 @@
 
 ### Bye bye bycycle
 
-### Test test....
+### Test test testing 123
 
 ---
 
@@ -483,6 +483,76 @@
 ### What do you call two black men sleeping in a red sleeping bag
 
 ### Kit kat
+
+---
+
+</br>
+
+### Why is the bottom of the ocean so dark?
+
+### Because black people can't swim.
+
+###
+
+---
+
+</br>
+
+### What do 9 out of 10 people enjoy??
+
+### Gang rape
+
+###
+
+---
+
+</br>
+
+### Why are American basketball players so tall
+
+### Because they are knee grows
+
+###
+
+---
+
+</br>
+
+### What is 6.9
+
+### A good thing ruined by period
+
+###
+
+---
+
+</br>
+
+### What do black people and bicycles have in common??
+
+### Both don't work without chains
+
+###
+
+---
+
+</br>
+
+### Humans are like jokes
+
+### Not everyone likes dark ones
+
+###
+
+---
+
+</br>
+
+### Why do black people have white nails?
+
+### Because everyone has a little good in them
+
+###
 
 ---
 
